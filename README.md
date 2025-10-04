@@ -25,7 +25,7 @@
 
 - 📫 How to reach me **savindiduleesha@gmail.com**
 
-- ⚡ Fun fact **I think I'm Overthinking**
+- ⚡ Fun fact **Coffee > Sleep ☕**
 
 <br/>
 
